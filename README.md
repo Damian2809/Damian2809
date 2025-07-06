@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hey im Damian. You want to know something then write me on Discord<br><br>💬 Ask me about RenPY but nothing else<br>⚡ Fun fact im legally not able to fly a F-35
+Hey im Dia ( Please dont call me Damian, thats my Deadname ). You want to know something then write me on Discord<br><br>💬 Ask me about RenPY but nothing else<br>⚡ Fun fact im legally not able to fly a F-35
 
 
 # 💻 Tech Stack:
